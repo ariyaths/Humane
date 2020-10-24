@@ -9,3 +9,6 @@
 * Active Euthanatia "a deliberate intervention undertaken with the express intention of ending a life, to relieve intractable suffering"
   * expressed by whom?
   * intractable!!!
+
+### some examples of situation
+* An unborn child with 55% chance of mental retardation
