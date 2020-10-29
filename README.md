@@ -11,6 +11,9 @@
 * A firm realises that a newly hired employee has many medical issues and falls sick often. Terminate the employment?
 * All humans become old and senile, some also bankrupt and sick with requirement of costly Medicare. 
 
+For all the above examples religion easily let's us choose the human, and accept the sacrifice. Since all sacrifices in a religious context are meritorious.
+But, for a logical, rational, scientific person, what is the humane decision? The sacrifices won't improve the situation; neither for the patient nor the caregiver.
+
 
 #### Is euthanasia denied on humanitarian grounds, or, on rational grounds?  
 * Passive Euthanatia "Pulling the Plug"
