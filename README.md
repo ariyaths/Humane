@@ -9,7 +9,7 @@
 * A child born with severe disabilities, eg. blind, or deaf, or with permanent mental retardation like Down's Syndrome or Fragile X.
 * A newly married couple, one of them soon realizes that the other has severe mental issues. Should he/she stand by their vow and accept lifelong role of caretaker, or divorce?
 * A firm realises that a newly hired employee has many medical issues and falls sick often. Terminate the employment?
-* All become senile, some also bankrupt and sick with requirement of costly Medicare. 
+* All humans become old and senile, some also bankrupt and sick with requirement of costly Medicare. 
 
 
 #### Is euthanasia denied on humanitarian grounds, or, on rational grounds?  
