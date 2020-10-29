@@ -8,7 +8,7 @@
 * An unborn child with high chance of mental retardation. Abort?
 * A child born with severe disabilities, eg. blind, or deaf, or with permanent mental retardation like Down's Syndrome or Fragile X.
 * A newly married couple, one of them soon realizes that the other has severe mental issues. Should he/she stand by their vow and accept lifelong role of caretaker, or divorce?
-* A firm realises that a newly hired employee has many medical issues and falls sick often. Terminate the employment?
+* A firm realises that a newly hired employee has many untreatable medical issues and falls sick often. Terminate the employment?
 * All humans become old and senile, some also bankrupt and sick with requirement of costly Medicare. 
 
 For all the above examples religion easily let's us choose the human, and accept the sacrifice. Since all sacrifices in a religious context are meritorious.
