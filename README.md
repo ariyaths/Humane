@@ -20,3 +20,5 @@ But, for a logical, rational, scientific person, what is the humane decision? Th
 * Active Euthanatia "a deliberate intervention undertaken with the express intention of ending a life, to relieve intractable suffering"
   * expressed by whom?
   * intractable!!!
+
+“Physician-assisted suicide.” “Death with dignity.” “Elective euthanasia.”
